@@ -49,7 +49,7 @@ Formulate strategies for pricing and promotions during high-demand or low-demand
 
 
 ## Contact
-Created by [@githubusername] - feel free to contact me!
+Created by [@Bhasa27] - feel free to contact me!
 
 
 <!-- Optional -->
